@@ -1,3 +1,1 @@
 # Collaboration
-
-# Vup Vup
